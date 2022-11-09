@@ -1,5 +1,5 @@
 **Thanks for stopping by!**
-I am the Director of Content & Marketing at [Very Good Ventures](https://verygood.ventures/) → Read our [Very Good Blog](https://verygood.ventures/blog) 🦄
+I am the Content & Developer Marketing Lead at [Very Good Ventures](https://verygood.ventures/) → Read our [Very Good Blog](https://verygood.ventures/blog) 🦄
 
 A little more about me...
 - I'm a coffee fan ☕
